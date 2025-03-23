@@ -1,1 +1,0 @@
-# Thineka-Portfolio
